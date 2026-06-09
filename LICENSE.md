@@ -1,4 +1,4 @@
-
+advanced sol's rng Script is the best sol's rng Script, featuring aimbot and no cooldown. Safe and powerful for all your needs.
 
 
 
